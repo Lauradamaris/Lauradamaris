@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Lauradamaris. I’m interested in connecting with fellow techies
+- 👋 Hi, I’m @Lauradamaris based in Nairobi Kenya. I’m interested in connecting with fellow techies
 - I’m looking to collaborate with you all...
 
 <!---
